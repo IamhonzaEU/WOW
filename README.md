@@ -1,2 +1,4 @@
 # WOW
-Ahoj jak se máš ty debil
+Ahoj jak se máš ty KOKOS
+
+WTF FACK 
